@@ -2,8 +2,8 @@
 
 Olá!! Bem vindo ao livro de receitas.:wave:
 
-- -Strogonoof de Frango
+- -Strogonoff de Frango
 
--
+- Sopa de Letrinhas
 
 -
